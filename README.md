@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-[about me](about.nfilzi.com)
+[about me](https://about.nfilzi.com)
